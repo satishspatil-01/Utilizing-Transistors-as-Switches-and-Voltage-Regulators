@@ -1,4 +1,8 @@
 # Utilizing-Transistors-as-Switches-and-Voltage-Regulators
 
-Uploading WhatsApp Video 2026-02-26 at 23.41.46.mp4…
+
+
+
+
+https://github.com/user-attachments/assets/ff50d199-e174-4096-aa00-698dbfeae8e2
 
